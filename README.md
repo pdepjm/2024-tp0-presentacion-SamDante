@@ -2,7 +2,7 @@
 
 Hola 😄!!! Soy Dante Ezequiel Samudio (214.105-0) y esta es mi primera cursada de PdP 🤓
 
-[Foto Propia<sup>TM</sup> pendiente]
+![FotoPerfil](https://github.com/pdepjm/2024-tp0-presentacion-SamDante/assets/164639555/6b2d9b5c-cb60-4bfa-8820-9f2a4b90bbb5)
 
 Actualmente estoy metidísimo en:
 - Música (escuchar más especificamente porque no se tocar nada 💀)
