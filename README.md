@@ -8,7 +8,7 @@ Actualmente estoy metidísimo en:
 - Música (escuchar más especificamente porque no se tocar nada 💀)
 - Películas
 - Manga / Anime
-- Juegos
+- Juegos (mis favoritos serían The Binding of Isaac, Disco Elysium y ahora estoy enganchado con el Noita)
 
 Mis bandas favoritas por el momento son Kings of Convenience y TV Girl
 
